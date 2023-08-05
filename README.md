@@ -1,3 +1,3 @@
 # card
-![sffgsfg (1)](https://github.com/hsjferson/card/assets/49137587/146490b4-45ae-47bb-b462-2bbeaa5536ea)
-
+ 
+![SkatistaLogo1](https://github.com/hsjferson/card/assets/49137587/8099a62a-fccd-48b7-b8b5-bdede6313ea7)
